@@ -1,0 +1,1 @@
+When your astronauts are ready to land on Mars or return to Earth, they jump into the Astro Venture Space Capsule. The Capsule has a fully operational door with transparent window and lights up when the astronaut action figure is placed inside. The Space Capsule is compatible with the Astro Venture Space Station for hours of imagination and fun.

@@ -1,0 +1,1 @@
+3-2-1 liftoff!   Soar among the stars with the Astro Venture Space Rocket.  With a light up engine, awesome engine sounds, openable doors, a junior rover, and a fully functional moving chair that moves from the cockpit to the control room, the Astro Venture Space Rocket is the perfect vehicle for budding space explorers.
