@@ -4,8 +4,8 @@
     - 2 operational doors
     - Lights and sounds
     - Compatible with the Astro Venture Space Rover and Space Capsule (Rover and Capsule not included)
-- 1 Astro Venture Space Hover Vehicle
-- 1 Astro Venture Astronaut action figure with Backpack
+- 1 Space Hover Vehicle
+- 1 Astronaut action figure with Backpack
 - 1 tether cable for Astro Venture Space Rover
 - 1 tether cable to attach the Astronaut to the Space Station
 - Manufactured from BPA-free, non-toxic ABS plastic

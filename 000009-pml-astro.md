@@ -10,6 +10,8 @@ The Astro Venture Space Playset has everything a young astronaut needs to explor
     - Lights and sounds
     - Compatible with the Astro Venture Space Rover and Space Capsule (Rover not included)
 - 1 Space Hover Vehicle
+- 2 Astronaut action figures
+- 1 Backpacks
 - 1 tether cable for Astro Venture Space Rover
 - 1 tether cable to attach the Astronaut to the Space Station
 - Manufactured from BPA-free, non-toxic ABS plastic

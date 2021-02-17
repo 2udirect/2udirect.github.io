@@ -5,7 +5,7 @@
     - Operational doors
     - Captain's chair moves between cockpit and control room
     - Handle for easy transport
-- 1 Astro Venture Junior Rover
+- 1 Junior Rover
 - 2 Astronaut action figures with Backpacks
 - Manufactured from BPA-free, non-toxic ABS plastic
 - Ages 3 years and up
