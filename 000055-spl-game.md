@@ -7,6 +7,6 @@ To play: Roll the special die. The player will get “Forward", "Back", or "Tail
     - Giraffe stickers
 - 4 Pesky Birds
 - 1 Special Die
-- Ages 4 and up
+- Ages 4 years and up
 - Some assembly required
 - Requires 3 AA batteries (not included)

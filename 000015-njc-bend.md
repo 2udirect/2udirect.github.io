@@ -2,4 +2,4 @@ The 50th Anniversary Edition Pokey Bendable! Fans of nostalgic or vintage toys w
 
 - 5 inches tall
 - Bendable, poseable
-- Ages
+- Ages 3 years and up
