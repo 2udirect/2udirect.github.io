@@ -1,4 +1,4 @@
-Space adventures await! The Astro Venture Space playset is the ultimate collection for space exploration! Blast into orbit with the Space Shuttle, establish an extraterrestrial home base with the Space Station, explore alien planets with the Space Rover, and return to earth with the Space Capsule.
+Space adventures await! Young astronauts can soar among the stars and discover new worlds with the Astro Venture Space Playset. Establish an extraterrestrial home base with the Space Station, and take an outer space journey in the Space Capsule.
 
 The Astro Venture Space Playset has everything a young astronaut needs to explore the stars!
 
